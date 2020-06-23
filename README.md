@@ -1,22 +1,11 @@
 Bệnh trĩ
-Bệnh trĩ
-
-Bệnh trĩ
-
-
-Bệnh trĩ
-
-
-
-Bệnh trĩ
 
 
 
 
 
-<p style="text-align:justify">tự sướng quá thường hay khiến cho mình ở vào trạng thái tâm lý căng thẳng, dằn vặt, Cộng với đó sẽ gây ra mất ngủ, luôn cảm thấy hoang mang, bất an, còn có thể là khiến tính tình trở thành cáu gắt.</p>
 
-<div class="adv" id="ads_41" style="margin: 0px; padding: 0px; color: rgb(34, 34, 34); font-family: Arial, Helvetica, sans-serif; font-size: 12px; text-align: justify; background-color: rgb(250, 250, 250);">&nbsp;</div>
+
 
 <p style="text-align:justify">bởi vì thế những trường hợp rất hay tự sướng có thể gặp phải nhiễu loạn hoạt động thường thì của hệ thống thần kinh do trung khu hung phấn của đại não luôn phải lặp đi lặp lại trạng thái hứng thú liên tục, từ đó giảm thiểu sức tập trung tới công việc và trí nhớ cũng mắc phải suy yếu một kỹ thuật ngay lập tức,&hellip;</p>
 
